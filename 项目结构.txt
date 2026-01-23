@@ -1,0 +1,5 @@
+ComfyUI/custom_nodes/DeepSeek_API/
+├── __init__.py
+├── nodes.py
+├── config.json (可选，用于存储API配置)
+└── README.md
