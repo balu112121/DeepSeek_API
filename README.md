@@ -72,8 +72,12 @@
 
 南光AIGC绘画 仙宫云新人注册网址---https://www.xiangongyun.com/register/MJAT43 新人注册仙宫云送5元代金券， 填写邀请码（输入我们的邀请码：MJAT43 ）还额外送3元代金券 完成后可以得到仙宫云8元账户余额，可以免费带你玩转5小时发高配4090 D显卡AIGC绘画。
 
+
+PS软件（AI）插件
 https://istarry.com.cn/?sfrom=jbEHmC
-StartAI PS插件，提供多种强大的AI功能，轻松提升设计效率，邀您免费体验，我的邀请码：jbEHmC，点击注册。
+提供多种强大的AI功能，轻松提升设计效率，邀您免费体验
+
+通过这个链接注册送1000RH币：https://pre.runninghub.cn/?inviteCode=t7ztfeiw 注册领1000RH币可以免费生成好多图片视频哦！
 
 ### 三大自媒体平台
 
